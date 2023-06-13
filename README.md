@@ -3,7 +3,4 @@
 
 
 
-
-
-https://github.com/omnaladkar/Fiver_Clone/assets/75687080/6b25c2e3-dec4-42f7-97db-9ae2cb1bc823
-
+[![Little red riding hood](http://i.imgur.com/7YTMFQp.png)](https://youtu.be/7vRSpb6UFys "Little red riding hood - Click to Watch!")
